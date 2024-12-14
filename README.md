@@ -1,2 +1,1 @@
-# hey mic what is your tip color?? uhhh grey? DICK TIP?? soap gasps
-
+You may not know me..𝓫𝓾𝓽 𝓘 𝓴𝓷𝓸𝔀 𝔂𝓸𝓾..
